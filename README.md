@@ -1,3 +1,2 @@
-## I forgot how to make things private DON'T LOOK PLEASE 
-I'm trying I swear <br>
-Give me 10 mins and I won't update when I'm done <333
+## stop looking. don't look. don't read. why are you reading
+I told you to stop. please i don't want you to look here. you don't need to be here. i gave you a different link why did you go here. go away. this place is for me not you. please. i need you to leave now.
